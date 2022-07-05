@@ -1,0 +1,2 @@
+- 👋 I'm Drake, currently serving in the USN and i'm starting to learn how to program to pursue a degree after the military!
+- 👀 I’m interested in cybersecurity, Video Games, Problem Solving!
